@@ -10,3 +10,8 @@
 - entre outros...
 - O segredo dos Animais
 - O Rie leão.
+- Quem pensa enriquece.
+- O homem mais rico da Babilônia.
+- A coragem de ser Imperfeito.
+- Minutos de sabedoria.
+- Encorajando pais.
